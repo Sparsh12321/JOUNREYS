@@ -1,1 +1,1 @@
-# JOUNREYS
+# JOURNEYS
